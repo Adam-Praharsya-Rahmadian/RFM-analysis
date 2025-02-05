@@ -1,0 +1,2 @@
+# Latar Belakang
+Grotech menyediakan berbagai alat berat seperti excavator, crane, dan forklift yang dirancang untuk efisiensi dan ketahanan tinggi yang memenuhi standar kualitas terbaik. Dalam mendukung kebutuhan teknologi, Grotech menghadirkan sistem manajemen proyek berbasis digital dan alat pemantauan real-time untuk meningkatkan produktivitas. Layanan konsultasi juga tersedia, mencakup pelatihan operator, dukungan teknis, dan desain arsitektural yang disesuaikan dengan kebutuhan klien.
